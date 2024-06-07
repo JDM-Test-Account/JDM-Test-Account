@@ -1,0 +1,4 @@
+- Hi, I’m JDM
+- 👀 I’m interested in Learning New stuff 
+- 🌱 I’m currently learning Everything lol
+- 📫 How to reach me Discord - JDMStand
